@@ -1,4 +1,4 @@
-# Day-1-Kelompok_Muhammad Ragil Bima Nurhidayat
+# Day-1-THE SIMS_Muhammad Ragil Bima Nurhidayat
 
 ## Informasi Peserta
 * **Nama Lengkap:** Muhammad Ragil Bima Nurhidayat
